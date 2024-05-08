@@ -1,1 +1,1 @@
-but its ok trust
+coping hard rn
